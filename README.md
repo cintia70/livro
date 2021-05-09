@@ -1,3 +1,5 @@
 # livro de receitas
 
-olá! bem vindoaonosso livro de recitas:wave:
+Olá! bem vindo ao meu livro de recitas:wave:
+
+Aqui iremos aprender alguns pratos saborosos e  aprecia los.
